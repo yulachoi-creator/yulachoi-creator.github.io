@@ -11,6 +11,7 @@ redirect_from:
 
 ### Aftermarket Sales Manager | HD Construction Equipment
 ![HD Construction Equipment](https://www.hd-ce.com/)
+
 I am an **Aftermarket Sales Manager for the Hyundai brand**, working with international dealer networks across **Central America, the Caribbean and Brazil Subsidiary**.
 
 My work sits at the intersection of **sales, dealer management, aftermarket business, and global operations**. I support dealers grow their aftermarket business by managing parts sales, inventory, lubricants, attachments, and various commercial programs while coordinating closely with headquarters and regional organizations.
